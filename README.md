@@ -49,4 +49,3 @@ Stay Connected 📱
 
 [https://www.linkedin.com/in/guru-harika-alpuri-5644a5255]
 
-I hope this revised README meets your requirements! 😊
